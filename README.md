@@ -1,55 +1,54 @@
--Buenas noches, Dance -añadió el doctor con una inclinación de cabeza-. Buenas noches, Jim. ¿Qué buen
-viento os trae por aquí?
-El superintendente, muy envarado, contó lo ocurrido como quien recita una lección; y era digno de ver
-cómo los dos caballeros lo escuchaban con la máxima atención, intercambiándose miradas, tanto que hasta
-se olvidaron de fumar, absortos y asombrados por el relato. Cuando supieron cómo mi madre se había atrevido
-a regresar a la hostería, el doctor Livesey no pudo reprimir una exclamación:
--¡Bravo! -dijo con un gesto tan impulsivo, que quebró su larga pipa contra la parrilla de la chimenea.
-Antes de que terminase el superintendente su narración, el señor Trelawney -pues ése, como se recordará,
-era el nombre del squire- se levantó de su butaca y empezó a recorrer el salón a grandes zancadas, mientras
-el doctor, como para oír mejor, se había despojado de la empolvada peluca; y por cierto que resultaba sorprendente
-verlo con su auténtico pelo, negrísimo y cortado al rape.
-Por fin el señor Dance terminó su explicación.
--Señor Dance -dijo el squire-, es usted un hombre de provecho. Y en cuanto a la muerte de ese vil y desalmado
-forajido, lo considero un acto virtuoso como el aplastar una cucaracha. En cuanto a este mozo,
-Hawkins, es una verdadera joya. Por favor, Hawkins, ¿quieres tirar de la campanilla? El señor Dance tomará
-un trago de cerveza.
--¿Así, Jim -dijo el doctor-, que tú tienes lo que esos pillos andaban buscando?
--Aquí está, señor-dije, y le entregué el paquete envuelto en hule.
-El doctor lo miró por todos lados, temblándole los dedos por la impaciencia de abrirlo; pero, en vez de
-hacerlo, se lo guardó tranquilamente en el bolsillo de su casaca.
--Señor Trelawney -dijo-, no debemos distraer al señor Dance por más tiempo de sus obligaciones; el servicio
-de Su Majestad no descansa. Pero sugeriría que Jim Hawkins se quedara a dormir en mi casa, y, con
-vuestro permiso, propongo, bien se lo ha ganado, que traigan el pastel de fiambre y que reponga fuerzas.
--Como gustéis, Livesey-dijo el squire-, pero Hawkins bien merece algo mejor que ese pastel.
-Trajeron un enorme pastel de pichones, que dispusieron en una mesita junto a mí, y cené copiosamente,
-pues tenía un hambre de lobo. Mientras tanto el señor Dance fue nuevamente felicitado y finalmente despedido.
--Y bien, señor Trelawney... -dijo entonces el doctor.
--Y bien, señor Livesey -dijo el squire-. Ahora...
--Cada cosa a su tiempo -dijo riéndose el doctor-, cada cosa a su tiempo. Habréis oído hablar de ese Flint,
-¿no es así?
--¡Hablar! -exclamó el squire-. ¡Hablar, decís! Flint ha sido el más sanguinario pirata que cruzó los mares.
-Barbanegra era un inocente niñito a su lado. Los españoles le tenían tanto miedo, que aveces me he sentido
-orgulloso de que fuera inglés. Con estos ojos he visto sus monterillas en el horizonte, a la altura de Trinidad,
-y el cobarde con quien yo navegaba viró y le faltó tiempo para refugiarse en las tabernas de Puerto
-España.
--Sí, también yo he oído hablar de él en Inglaterra -dijo el doctor-. Pero la cuestión es si realmente atesoraba
-tanta riqueza como dicen.
--¿Que si atesoraba tantas riquezas? -interrumpió el squire-. ¿Pero no conocéis la historia? ¿Qué buscaban
-esos villanos sino tal fortuna? ¿Por qué otra cosa iban a arriesgar su cuello? Esa carne de horca sabía lo que
-buscaba.
--Que es lo que nosotros ahora podemos conocer -contestó el doctor-. Pero sois tan exaltado, que me confundís
-y no he podido explicarme. Lo único que necesito saber es eso: Si yo tuviera aquí, en mi bolsillo,
-alguna indicación acerca del lugar donde Flint enterró su tesoro, ¿qué valor tendría para nosotros?
--¿Qué valor? -exclamó el squire-. Mirad: si tenemos esa indicación de que habláis, estoy dispuesto a fletar
-y pertrechar un barco en Bristol y llevaros a vos y también a Hawkins, y prometo hacerme con ese tesoro,
-aunque tenga que estar un año buscándolo.
--Magnífico -dijo el doctor-. Ahora, pues, si Jim está de acuerdo, abriremos el paquete.
-Y diciendo esto puso ante él en la mesa el paquetito que se había guardado.
-El envoltorio estaba cosido y el doctor tuvo que sacar su instrumental y cortó las puntadas con las tijeras
-de cirujano. Aparecieron entonces dos cosas: un cuaderno y un sobre sellado.
--Empezaremos por el cuaderno -dijo el doctor.
-Y me hizo señas para que me acercase y gozara del placer de la investigación. El squire y yo mirábamos
-por encima de su cabeza mientras él lo abría. En la primera página sólo encontramos algunas palabras sin
-ilación, como las que se escriben por mero capricho. Alguna frase había, sin sentido, que repetía lo que yo
-había visto tatuado en el brazo del capitán: «Billy Bones es libre»; después leímos: «Señor W. Bones, se-
+gundo de a bordo». «Se acabó el ron». «A la altura de Cayo Palma recibió el golpe», y otros varios garabatos,
+la mayor parte palabras sueltas e incomprensibles. No pude menos que imaginar quién sería el que recibió
+«ese» golpe, y qué «golpe» sería... quizá el de un cuchillo, y por la espalda.
+-No se saca mucho de aquí -dijo el doctor Livesey pasando las hojas.
+En las diez o doce páginas siguientes había una curiosa serie de asientos. En los extremos de cada renglón
+constaba una fecha, en uno y en el otro una cantidad de dinero, como suelen figurar en los libros de
+contabilidad; pero, en lugar de anotaciones explicativas del concepto, sólo había un número variable de
+cruces. Así, el 12 de junio de 1745, por ejemplo, se indicaba haber asignado a alguien una suma de 70 libras
+esterlinas, pero sólo seis cruces indicaban el motivo. En otros casos, es cierto, se añadía el nombre de
+algún lugar, como «A la altura de Caracas», o una mera indicación del rumbo, como «62° 17'20”, 19°
+2'40”».
+La contabilidad abarcaba cerca de veinte años, y las cantidades que reflejaba cada asiento iban haciéndose
+mayores con el paso del tiempo; al final se había sacado el total, tras cinco o seis sumas equivocadas, y
+se le habían añadido las siguientes palabras: «Bones, lo suyo».
+-No saco nada en limpio de todo esto -dijo el doctor Livesey.
+-Pues está tan claro como la luz del día -exclamó el squire-. Este libro registra las cuentas de aquel perro
+desalmado. Las cruces represenan los nombres de navíos hundidos o de ciudades saqueadas. Las cantidades
+son la parte que a él le tocaba, y, cuando tenía alguna duda, añadía para precisar: «A la altura de Caracas»,
+lo que debe significar que en esa situación algún malaventurado barco fue abordado. Dios tenga compasión
+de las pobres almas que lo tripulaban... Se las habrá tragado el coral.
+-¡Cierto! -dijo el doctor-. Se nota que habéis viajado mucho. ¡Cierto! Y así las cantidades iban creciendo
+a medida que él ascendía de rango.
+El resto del cuaderno decía ya bien poca cosa, a no ser unas referencias geográficas, anotadas en las últimas
+páginas, y una tabla de equivalencias del valor entre monedas francesas, inglesas y españolas.
+-Hombre ordenado -observó el doctor-. No era de los que se dejan engañar.
+-Y ahora -dijo el squire- pasemos a la otra cosa.
+El sobre estaba lacrado en varios puntos y sellado sirviéndose de un dedal, quizá el mismo que yo había
+encontrado en el bolsillo del capitán. El doctor abrió los sellos con gran cuidado y ante nosotros apareció el
+mapa de una isla, con precisa indicación de su latitud y longitud, profundidades, nombres de sus colinas,
+bahías y estuarios, y todos los detalles precisos para que una nave arribase a seguro fondeadero. Medía unas
+nueve millas de largo por cinco de ancho, y semejaba, o así lo parecía, un grueso dragón rampante. Tenía
+dos puertos bien abrigados, y en la parte central, un monte llamado «El Catalejo». Se veían algunos añadidos
+realizados sobre el dibujo original; pero el que más nos interesó eran tres cruces hechas con tinta roja:
+dos en el norte de la isla y una en el suroeste, y junto a esta última, escritas con la misma tinta y con fina
+letra, muy distinta de la torpe escritura del capitán, estas palabras: «Aquí está el tesoro».
+En el reverso y de la misma letra aparecían los siguientes datos:
+«Arbol alto, lomo del Catalejo, demorando una cuarta al N. del N.N.E.
+Isla del Esqueleto E.S.E. y una cuarta al E. Diez pies.
+El lingote de plata está en escondite norte; se encontrará tomando por el montículo del este,
+diez brazas al sur del peñasco negro con forma de cara.
+Las armas se hallan fácilmente en la duna situada al N. punta del Cabo norte de la bahía,
+rumbo E. y una cuarta N.
+J. F.»
+Y eso era todo, y, aunque a mí me resultó incomprensible, colmó de alegría al squire y al doctor Livesey.
+-Livesey -dijo el squire-, os sugiero abandonar inmediatamente ese mezquino quehacer vuestro. Pienso
+salir mañana para Bristol. En tres semanas... ¡En dos si fuera posible!... ¡En diez días! Sí, en diez días, tendremos
+el mejor barco, sí, señor, y la mejor tripulación de Inglaterra. Hawkins será nuestro ayudante, ¡y
+valiente ayudante que has de ser, joven Hawkins! Vos, Livesey, iréis como médico de a bordo; yo seré el
+comandante. Llevaremos con nosotros a Redruth, a Joyce y a Hunter. Con buenos vientos, que los tendremos,
+la travesía será rápida y sin dificultades. Encontraremos el sitio, y después, ah, después, habrá tanto
+dinero, que podremos revolcarnos en é1. Viviremos en el mayor lujo por el resto de nuestros días.
+-Trelawney -dijo el doctor-, iré con vos, y salgo fiador del empeño, y también vendrá Jim, lo que será una
+garantía para nuestra empresa. Pero he de deciros, a fuer de ser sincero, que hay una persona a quien temo.
+-¿Y quién es él? -clamó el squire-. Decidme el nombre de ese perro.
