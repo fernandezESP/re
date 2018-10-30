@@ -1,94 +1,63 @@
--Sí, señor -dijo-, éste es el sitio, no hay duda; y muy bien dibujado que está. Me pregunto quién lo habrá
-trazado. Los piratas eran demasiado ignorantes para hacerlo, pienso yo. Sí, mire, capitán: aquí está: «El
-Fondeadero del capitán Kidd...», así lo llamaba mi compañero. Aquí hay una corriente muy fuerte que
-arrastra hacia el sur y luego remonta al norte a lo largo de la costa occidental. Ha hecho usted bien, señor,
-en ceñirse y alejarnos de la isla -agregó-. Pero si vuestra intención es fondear para carenar, desde luego no
-hay mejor lugar por estas aguas.
--Gracias, gracias -dijo el capitán Smollett-. Ya requeriré sus servicios, si preciso más adelante alguna información.
-Puede usted retirarse.
-Yo estaba asombrado de la desenvoltura con que Silver confesaba su profundo conocimiento de aquellas
-tierras. Y no pude evitar un sentimiento de temor, cuando vi que se acercaba a mí. No era posible que
-hubiera advertido mi presencia en el barril de las manzanas y que por tanto supiera que yo estaba al corriente
-de sus intenciones, pero, aun así, me infundía ya tal pavor por su doblez, su crueldad y su influencia sobre
-los demás marineros, que apenas pude disimular un estremecimiento cuando me puso la mano en el
-hombro.
--Ah -dijo-, qué lugar tan bonito esta isla; un sitio perfecto para que lo conozca un muchacho como tú.
-Podrás bañarte, trepar a los árboles, cazar cabras, y podrás escalar aquellos montes como si fueras una de
-ellas. Esto me devuelve mi juventud. Ya hasta se me olvida mi pata de palo. Qué hermoso es ser joven y
-tener diez dedos en los pies, tenlo por seguro. Cuando quieras desembarcar y explorar la isla, no tienes más
-que decírselo al viejo John, y te prepararé un bocado para que te lo lleves.
-Y volvió a darme una palmada cariñosa. Después se fue hacia su cocina.
-El capitán Smollett, el squire y el doctor Livesey estaban conversando bajo la toldilla, y, a pesar de mi
-ansiedad por contarles lo sucedido, no me atrevía a interrumpirles tan bruscamente. Mientras buscaba un
-pretexto para dirigirme a ellos, el doctor me indicó que me acercara. Se había olvidado su pipa en el camarote
-y, como no podía vivir sin fumar, me rogó que se la trajese; en cuanto me acerqué a ellos lo justo para
-poder hablarles sin que los demás me oyeran, le dije al doctor:
--Tengo que hablaros. Haced que el capitán y el squire bajen al camarote y hacedme ir con cualquier excusa.
-Sé cosas terribles.
-El doctor pareció inquietarse, pero se dominó al instante.
--Muchas gracias, Jim -dijo en voz alta-; eso era lo que quería saber -como si me hubiera preguntado
-cualquier cosa.
-Me dio la espalda y continuó su conversación. Al poco rato, y aunque no percibí movimiento alguno que
-los delatase, ni ninguno alzó su voz ni hizo la menor demostración de que el doctor Livesey estuviera informándoles
-de mi seria advertencia, no dudé que se lo había comunicado, pues en seguida vi al capitán
-que daba una orden a Job Anderson, y el silbato convocó a toda la tripulación en cubierta.
--Muchachos -dijo el capitán Smollett-, tengo que deciros unas palabras. La tierra que está a la vista es
-nuestro punto de destino. El señor Trelawney, que es un caballero generoso como ya todos habéis comprobado,
-me ha pedido mi opinión sobre vuestra conducta en esta travesía y he podido informarle con placer
-que todo el mundo a bordo, sin excepciones, ha cumplido con su deber a mi entera satisfacción. Por ello él
-y el doctor y yo bajaremos ahora al camarote para brindar a vuestra salud y por vuestra suerte, y a vosotros
-se os permiten unas rondas para brindar a la nuestra. Me parece que debéis agradecerle su gentileza, y si así
-es, gritad conmigo un fuerte «;Hurra!» marinero por el caballero que os las regala.
-Escuchamos aquel grito, lo que era de esperar; pero sonó tan vibrante y entusiasta, que confieso que me
-costaba trabajo imaginar a aquellos hombres como enemigos de nuestras vidas.
--¡Otro «¡Hurra!» por el capitán Smollett! -gritó entonces John «el Largo».
-Y también este segundo fue dado con toda el alma. Inmediatamente los tres caballeros bajaron al camarote
-y poco después enviaron a por mí con el pretexto de que «Jim Hawkins hacía falta» abajo.
-Los encontré sentados en torno a la mesa; ante ellos había una botella de vino español y pasas, y el doctor
-fumaba con agitación y se había quitado la peluca, que tenía sobre las rodillas, lo que era señal en él de la
-máxima ansiedad. La portilla de popa estaba abierta, pues era una noche en extremo calurosa, y se veía el
-rielar de la luna en la estela del barco.
--Ahora, Hawkins -dijo el squire-; creo que tienes algo que contarnos. Habla.
-Así lo hice, y en tan pocas palabras como pude relaté cuanto había escuchado de Silver. Ninguno me interrumpió;
-los tres permanecieron inmóviles y con sus ojos fijos en mí hasta que terminé mi historia.
-Jim -dijo el doctor Livesey-, siéntate.
-Me hicieron sentar a la mesa junto con ellos; me sirvieron una copa de vino y me llenaron las manos de
-pasas. Entonces, uno tras otro, y con una inclinación de sus cabezas, brindaron a mi salud como agradecimiento
-por lo que consideraban mi valentía y mi buena suerte.
--Y ahora, capitán -dijo el squire-, teníais razón y yo estaba equivocado. Confieso que soy un asno y espero
-vuestras órdenes.
--No más asno que yo mismo, señor -contestó el capitán-. Porque jamás he oído de una tripulación con intenciones
-de motín que no diera antes ciertas señales que yo tenía la obligación de haber descubierto y así
-prevenir el mal y tomar medidas. Pero esta tripulación -añadió- ha sido más lista que yo.
--Capitán -dijo el doctor-, con vuestro permiso, creo que el causante de todo es Silver, y se trata de un
-hombre sin duda notable.
--Más notable me parecería colgado de una verga -repuso el capitán-. Pero de cualquier forma esta conversación
-ya no nos conduce a nada. Por el contrario, hay tres puntos con la venia del señor Trelawney que
-voy a someter a vuestra consideración.
--Señor, sois el capitán -dijo el squire con gesto liberal- y es a quien toca hablar.
--Primer punto -comenzó el señor Smollet-: tenemos que continuar porque es imposible el regreso. Si diese
-ahora la orden de zarpar, se amotinarían en el acto. Segundo punto: tenemos algún tiempo por delante,
-al menos hasta encontrar ese dichoso tesoro. Y tercer punto: no todos los marineros son desleales. Ahora
-bien, tarde o temprano tendremos que enfrentarnos violentamente a los levantiscos, y lo que yo propongo
-es coger la ocasión por los pelos, como suele decirse, y atacar nosotros precisamente el día en que menos lo
-esperen. Doy por descontado que podemos contar con vuestros criados, ¿no es así, señor Trelawney?
--Como conmigo mismo -declaró el squire.
--Son tres -dijo el capitán echando cuentas-, lo que con nosotros suma siete, porque incluyo al joven
-Hawkins. Ahora hay que tratar de averiguar quiénes son los marineros leales.
--Probablemente los que contrató personalmente el señor Trelawney -dijo el doctor-; los que enroló antes
-de dar con Silver.
--No -interrumpió el squire-. Hands fue uno de los que yo contraté.
-Jamás lo había pensado de Hands -declaró el capitán.
--¡Y pensar que son ingleses! -exclamó el squire- ¡Intenciones me dan de volar el barco!
--Pues bien, caballeros -dijo el capitán-, lo mejor que yo pueda añadir no es gran cosa. Propongo que
-aguardemos y vayamos sondeando la situación. Es difícil de soportar, lo sé. Sería más agradable romper el
-fuego de una vez. Pero no tenemos otro camino hasta que sepamos con quiénes podemos contar. Nos pondremos
-a la capa y esperaremos viento: ésta es mi opinión.
-Jim -dijo el doctor- es quizá el que mejor puede ayudarnos. Los marineros no desconfían de él, Jim es un
-magnífico observador.
--Hawkins, toda mi confianza la deposito en ti -dijo el squire.
-Me sentí abrumado por tanta responsabilidad, ya que no creía poder cumplir como es debido mi cometido;
-y sin embargo, por una extraña concatenación de circunstancias, sería yo precisamente quien tendría en
-sus manos la salvación de todos. Pero, en aquellos momentos, lo cierto es que de los veintiséis que íbamos
-a bordo sólo en siete podíamos confiar; y de los siete, uno era un muchacho, de modo que verdaderamente
-nuestro partido sólo contaba con seis, contra los diecinueve del enemigo.
+Capítulo 13
+Así empezó mi aventura en la isla
+El aspecto de la isla, cuando a la mañana siguiente subí a cubierta, había cambiado por completo. La brisa
+había amainado, y, aunque durante la noche navegamos bastante, en aquel momento nos encontrábamos
+detenidos en la calma a media milla del suroeste de la costa oriental, que era la más baja. Bosques grisáceos
+cubrían gran parte del paisaje. En algunos puntos esa tonalidad monótona se salpicaba con sendas de arena
+amarilla desde la playa y con árboles altos, parecidos a los pinos, que se agrupaban sobre la general y uniforme
+coloración de un gris triste. Los montes se destacaban como rupturas de la vegetación y semejaban
+torres de piedra. Sus formas eran extrañas, y el de mas rara silueta, que sobresalía en doscientos o trescientos
+pies a los otros, era el Catalejo; estaba cortado a pico por sus laderas y en la cima se truncaba bruscamente
+dándole la forma de un pedestal.
+La Hispaniola se balanceaba hundiendo sus imbornales en las aguas. La botavara tensábase violentamente
+de las garruchas, y el timón, suelto, golpeaba a un lado y otro, y las cuadernas crujían, y todo el barco
+resonaba como una factoría en pleno trabajo. Tuve que agarrarme con fuerza a un cabo, pues el mundo entero
+parecía girar vertiginosamente ante mis ojos, y, aunque yo para entonces ya me había convertido casi
+en un marino veterano, estar allí, en aquella calma, pero meciéndonos como una botella vacía entre las olas,
+pudo más que el hábito que ya comenzaba a desarrollar, sobre todo con el estómago vacío, como estaba
+aquella mañana.
+Quizá fuera eso, o acaso el aspecto de la isla, con sus bosques grises y melancólicos y sus abruptos roquedales
+y el rumor de la rompiente contra la escarpada costa; pero lo cierto es que, aunque el sol resplandecía
+hermosísimo y las gaviotas pescaban y chillaban a nuestro alrededor, y sobre todo el gozo natural a
+cualquiera que después de una larga travesía descubre tierra, el alma se me cayó a los pies, como suele decirse,
+y la primera impresión que quedó grabada en mis ojos de aquella isla sólo me inspiraba aborrecimiento.
+La mañana se nos presentó por completo dedicada a las más pesadas faenas, pues, como no veíamos señal
+alguna de viento, fue necesario arriar los botes y remolcar remando la goleta durante tres o cuatro millas,
+hasta que doblamos el extremo de la isla y enfilamos el fondeadero que estaba detrás de la Isla del
+Esqueleto. Yo me presté de voluntario para remar en uno de los botes, donde, por supuesto, no hice ninguna
+falta. El calor resultaba insoportable y los marineros maldecían a cada golpe de remo. Anderson, que
+patroneaba mi bote, era el primero en jurar más alto que ninguno.
+-¡Menos mal que se le ve el fin a esto! -vociferaba.
+Aquel comportamiento no me daba buena espina, pues fue la primera vez que los marineros no cumplían
+con presteza sus deberes; no cabe duda que a la vista de la isla las ataduras de la disciplina habían empezado
+a soltarse.
+Mientras remolcábamos la goleta, John «el Largo» no se separó del timonel y fue marcando el rumbo.
+Conocía aquel canal como la palma de su mano, y, aunque el marinero que iba sondeando en proa siempre
+anunciaba más profundidad que la que constaba en la carta, John no titubeó ni una sola vez.
+-Aquí se da un arrastre muy fuerte con la marejada -decía-, y este canal ha sido dragado, como si dijéramos,
+con una azada.
+Anclamos precisamente donde indicaba el mapa, a un tercio de milla de cada orilla, de un lado la Isla del
+Esqueleto y del otro la grande. La mar estaba tan clara, que podíamos ver el fondo arenoso. Cuando largamos
+el ancla, la fuente de espuma que desplazó hizo alzar el vuelo a una nube de pájaros, que durante unos
+instantes llenaron el cielo con sus graznidos; luego se posaron de nuevo en los bosques y todo volvió a
+hundirse en el silencio.
+El fondeadero estaba muy bien protegido de los vientos y rodeado por frondosos bosques, cuyo árboles
+llegaban hasta la misma orilla; la costa era llana y las cumbres de los montes se alzaban alrededor, al fondo,
+en una especie de anfiteatro. Dos riachuelos, o mejor, dos aguazales, desembocaban lentamente en una especie
+de pequeño lago, y la vegetación lucía un verdor extraño, como una patina de ponzoñoso lustre. Desde
+el barco no se llegaba a divisar el pequeño fuerte o empalizada señalada en el mapa, porque estaba encerrado
+por los árboles, y, a no ser porque aquél lo indicaba, hubiéramos podido creer que éramos los primeros
+que fondeaban desde que la isla surgió de los mares.
+No corría el menor soplo de aire, y el silencio sólo era roto por el rugido de las olas al romper, a media
+milla de distancia, en las largas playas rocosas. Un olor pestilente de agua estancada cubría el fondeadero
+como de hojas y troncos podridos. Vi que el doctor olfateaba con desagrado, como si olisquease un huevo
+poco fresco.
+-Ignoro si habrá por aquí algún tesoro -dijo-, pero apuesto mi peluca a que es lugar pródigo en fiebres.
+Si el comportamiento de la tripulación había empezado a inquietarme ya en los botes, cuando regresaron
+a bordo se hizo claramente amenazador. Tendidos en cubierta, en pequeños corrillos, discutían en voz baja.
+La más ligera orden era recibida con torvas miradas y ejecutada de la peor gana. Hasta los marineros leales
+parecían contaminados, pues no había ninguno a bordo que pudiera servir de modelo a los demás. El motín
+se palpaba en el aire como la inminencia de una tormenta.
+Y no éramos nosotros tan sólo quienes barruntábamos el peligro. John «el Largo» se afanaba corriendo
+de corrillo en corrillo, dando consejos y tratando de mostrarse lo menos amenazador posible. Hasta se excedía
+en solicitud y diligencia, deshaciéndose en sonrisas y halagos. Si se daba una orden, allí estaba él en
