@@ -1,63 +1,56 @@
-Capítulo 13
-Así empezó mi aventura en la isla
-El aspecto de la isla, cuando a la mañana siguiente subí a cubierta, había cambiado por completo. La brisa
-había amainado, y, aunque durante la noche navegamos bastante, en aquel momento nos encontrábamos
-detenidos en la calma a media milla del suroeste de la costa oriental, que era la más baja. Bosques grisáceos
-cubrían gran parte del paisaje. En algunos puntos esa tonalidad monótona se salpicaba con sendas de arena
-amarilla desde la playa y con árboles altos, parecidos a los pinos, que se agrupaban sobre la general y uniforme
-coloración de un gris triste. Los montes se destacaban como rupturas de la vegetación y semejaban
-torres de piedra. Sus formas eran extrañas, y el de mas rara silueta, que sobresalía en doscientos o trescientos
-pies a los otros, era el Catalejo; estaba cortado a pico por sus laderas y en la cima se truncaba bruscamente
-dándole la forma de un pedestal.
-La Hispaniola se balanceaba hundiendo sus imbornales en las aguas. La botavara tensábase violentamente
-de las garruchas, y el timón, suelto, golpeaba a un lado y otro, y las cuadernas crujían, y todo el barco
-resonaba como una factoría en pleno trabajo. Tuve que agarrarme con fuerza a un cabo, pues el mundo entero
-parecía girar vertiginosamente ante mis ojos, y, aunque yo para entonces ya me había convertido casi
-en un marino veterano, estar allí, en aquella calma, pero meciéndonos como una botella vacía entre las olas,
-pudo más que el hábito que ya comenzaba a desarrollar, sobre todo con el estómago vacío, como estaba
-aquella mañana.
-Quizá fuera eso, o acaso el aspecto de la isla, con sus bosques grises y melancólicos y sus abruptos roquedales
-y el rumor de la rompiente contra la escarpada costa; pero lo cierto es que, aunque el sol resplandecía
-hermosísimo y las gaviotas pescaban y chillaban a nuestro alrededor, y sobre todo el gozo natural a
-cualquiera que después de una larga travesía descubre tierra, el alma se me cayó a los pies, como suele decirse,
-y la primera impresión que quedó grabada en mis ojos de aquella isla sólo me inspiraba aborrecimiento.
-La mañana se nos presentó por completo dedicada a las más pesadas faenas, pues, como no veíamos señal
-alguna de viento, fue necesario arriar los botes y remolcar remando la goleta durante tres o cuatro millas,
-hasta que doblamos el extremo de la isla y enfilamos el fondeadero que estaba detrás de la Isla del
-Esqueleto. Yo me presté de voluntario para remar en uno de los botes, donde, por supuesto, no hice ninguna
-falta. El calor resultaba insoportable y los marineros maldecían a cada golpe de remo. Anderson, que
-patroneaba mi bote, era el primero en jurar más alto que ninguno.
--¡Menos mal que se le ve el fin a esto! -vociferaba.
-Aquel comportamiento no me daba buena espina, pues fue la primera vez que los marineros no cumplían
-con presteza sus deberes; no cabe duda que a la vista de la isla las ataduras de la disciplina habían empezado
-a soltarse.
-Mientras remolcábamos la goleta, John «el Largo» no se separó del timonel y fue marcando el rumbo.
-Conocía aquel canal como la palma de su mano, y, aunque el marinero que iba sondeando en proa siempre
-anunciaba más profundidad que la que constaba en la carta, John no titubeó ni una sola vez.
--Aquí se da un arrastre muy fuerte con la marejada -decía-, y este canal ha sido dragado, como si dijéramos,
-con una azada.
-Anclamos precisamente donde indicaba el mapa, a un tercio de milla de cada orilla, de un lado la Isla del
-Esqueleto y del otro la grande. La mar estaba tan clara, que podíamos ver el fondo arenoso. Cuando largamos
-el ancla, la fuente de espuma que desplazó hizo alzar el vuelo a una nube de pájaros, que durante unos
-instantes llenaron el cielo con sus graznidos; luego se posaron de nuevo en los bosques y todo volvió a
-hundirse en el silencio.
-El fondeadero estaba muy bien protegido de los vientos y rodeado por frondosos bosques, cuyo árboles
-llegaban hasta la misma orilla; la costa era llana y las cumbres de los montes se alzaban alrededor, al fondo,
-en una especie de anfiteatro. Dos riachuelos, o mejor, dos aguazales, desembocaban lentamente en una especie
-de pequeño lago, y la vegetación lucía un verdor extraño, como una patina de ponzoñoso lustre. Desde
-el barco no se llegaba a divisar el pequeño fuerte o empalizada señalada en el mapa, porque estaba encerrado
-por los árboles, y, a no ser porque aquél lo indicaba, hubiéramos podido creer que éramos los primeros
-que fondeaban desde que la isla surgió de los mares.
-No corría el menor soplo de aire, y el silencio sólo era roto por el rugido de las olas al romper, a media
-milla de distancia, en las largas playas rocosas. Un olor pestilente de agua estancada cubría el fondeadero
-como de hojas y troncos podridos. Vi que el doctor olfateaba con desagrado, como si olisquease un huevo
-poco fresco.
--Ignoro si habrá por aquí algún tesoro -dijo-, pero apuesto mi peluca a que es lugar pródigo en fiebres.
-Si el comportamiento de la tripulación había empezado a inquietarme ya en los botes, cuando regresaron
-a bordo se hizo claramente amenazador. Tendidos en cubierta, en pequeños corrillos, discutían en voz baja.
-La más ligera orden era recibida con torvas miradas y ejecutada de la peor gana. Hasta los marineros leales
-parecían contaminados, pues no había ninguno a bordo que pudiera servir de modelo a los demás. El motín
-se palpaba en el aire como la inminencia de una tormenta.
-Y no éramos nosotros tan sólo quienes barruntábamos el peligro. John «el Largo» se afanaba corriendo
-de corrillo en corrillo, dando consejos y tratando de mostrarse lo menos amenazador posible. Hasta se excedía
-en solicitud y diligencia, deshaciéndose en sonrisas y halagos. Si se daba una orden, allí estaba él en
+un periquete, muleta en ristre, con el más animoso «¡listo, señor!», para cumplirla. Y cuando no había nada
+que hacer, entonaba una canción tras otra, como para ocultar la tensión reinante.
+De todos los signos de amenaza que se leían en la actitud de la tripulación aquella tarde, la ansiedad dejohn
+«el Largo» me pareció el más grave.
+Volvimos a reunirnos en el camarote para celebrar consejo.
+-Señor Trelawney -dijo el capitán-, no puedo ya arriesgarme a dar ninguna orden, pues se negarían a
+cumplirla, ante lo cual sólo quedan dos soluciones, a cual peor: Si no soy obedecido y trato de obligar a un
+marinero, creo que la tripulación se amotinaría; y si, por el contrario, callo ante la rebeldía, Silver no tardará
+en darse cuenta de que hay gato encerrado, y nuestro juego quedará al descubierto. Pues bien, sólo podemos
+confiar en un hombre.
+-¿Y quién es él? -preguntó el squire.
+-Silver, señor -respondió el capitán-, que tiene tanto interés como vos o yo en suavizar las cosas. Evidentemente
+el comportamiento que venimos observando muestra que entre ellos hay claras desavenencias. Si
+damos ocasión a Silver, él no tardará en apaciguar a los más levantiscos. Y yo propongo precisamente que
+se le proporcione tal ocasión. Demos a la tripulación una tarde libre para que desembarquen a su antojo. Si
+desembarcan todos, nos apoderaremos del barco y nos haremos fuertes. Si ninguno decide ir a tierra, en ese
+caso nos defenderemos desde los camarotes... y que Dios nos ayude. Y si sólo unos cuantos desembarcan,
+bien, Silver los traerá de regreso y más mansos que corderos.
+Decidimos seguir las indicaciones del capitán. Se repartieron pistolas a todos los hombres seguros; a
+Hunter, a joyce y a Redruth se les puso al corriente de lo que pasaba, y recibieron la noticia con menos sorpresa
+y mejor ánimo de lo que cabía esperar; después el capitán subió a cubierta y les habló a los marineros:
+-Muchachos -les dijo-, la jornada ha sido muy dura y este calor es insufrible. Creo que bajar a tierra vendría
+bien a más de uno. Los botes están ahí, podéis usarlos y pasar la tarde en la isla. Media hora antes de la
+puesta del sol os avisaré con un cañonazo.
+Pienso que la tripulación, en su obcecación, se figuraba que bastaría con desembarcar para dar de narices
+con los tesoros que allí hubiera, pues su enemistad se disipó en un instante y prorrumpieron en un
+«¡Hurra!» tan clamoroso, que resonó en el eco desde las lejanas colinas e hizo levantar de nuevo el vuelo
+de los pájaros que volvieron a cubrir la rada.
+El capitán era demasiado astuto para seguir en cubierta. Desapareció como por ensalmo y dejó a Silver
+organizar aquella expedición. Y creo que obró muy cuerdamente, porque de haber permanecido allí no
+hubiera podido seguir fingiendo que desconocía la situación, que saltaba a la vista. Porque Silver se reveló
+como el verdadero capitán de aquella tripulación de amotinados. Los marineros fieles -y pronto se demostró
+que aún quedaban algunos- debían ser muy duros de mollera, o, más bien, lo que seguramente ocurría es
+que todos se hallaban, unos mas y otros menos, descontentos de sus cabecillas, y unos pocos, que en el fondo
+eran buena gente, ni querían ir ni hubieran permitido que se les llevara más lejos. Porque una cosa era
+hacerse los remolones y no cumplir lar órdenes, y otra bien distinta apoderarse violentamente de un navío y
+asesinar a unos inocentes.
+Se organizó la expedición. Seis marineros quedaron a bordo y los trece restantes, entre ellos Silver, embarcaron
+en los botes.
+Entonces fue cuando se me ocurrió la primera de las descabelladas ideas que tanto contribuyeron a salvar
+nuestras vidas. Porque pensé que, si Silver había dejado seis hombres a bordo, era evidente que nosotros no
+podríamos hacernos con el barco y defenderlo; y por otra parte, siendo seis, tampoco mi presencia hubiera
+servido de mucha ayuda. Y se me ocurrió desembarcar también. Y, sin pensarlo dos veces, me descolgué
+por una banda y me acurruqué en el castillo de proa del bote más cercano, en el mismo momento en que
+empezó a moverse.
+Nadie hizo caso de mi presencia, y el remero de proa me dijo:
+-¿Eres tú, Jim? Agacha la cabeza.
+Pero Silver, que iba en otro bote, miró inmediatamente hacia el nuestro, y gritó preguntando si yo estaba
+allí; y desde aquel momento empecé a arrepentirme de mi decisión.
+Las dos tripulaciones competían por llegar los primeros a la costa, pero mi bote, que era mas ligero que el
+otro, tomó delantera y atracó antes junto a los árboles de la orilla. Yo me agarré a una rama para saltar fuera
+y procuré desaparecer lo antes posible en la espesura, pero en ese momento oí la voz de Silver, que con los
+demás se encontraba a cien vasas de distancia:
+-Jim! Jim! -me gritó.
+Esto hizo que yo aligerase aún mas el paso, como es lógico imaginar; y saltando por entre las ramas como
+alma que lleva el diablo, corrí tierra adentro hasta que no pude más de cansancio.
